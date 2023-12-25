@@ -2,7 +2,7 @@
 
 ![GitHub Statistics](https://github-readme-stats.vercel.app/api?username=EmreTech&show=reviews&theme=shadow_green&show_icons=true)
 
-I'm a bisexual student who programs in my free time.
+I'm a bisexual, enby femboy who programs in my free time!
 
 <!-- Credits to https://simpleicons.org for the icons -->
 
